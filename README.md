@@ -65,7 +65,7 @@ You can explore similar datasets here: [https://uidai.gov.in/](https://uidai.gov
 *Sahil Khan Pathan*  
 📍 Pune, India  
 🔗 [LinkedIn](https://www.linkedin.com/in/sahil-khan-pathan-69a28428a)  
-📧 sahilkhanpathan9595@gmail.com
+📧 Pathansahil.dev@gmail.com
 
 ---
 
